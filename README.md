@@ -1,2 +1,2 @@
 # qr
-![image](https://github.com/user-attachments/assets/2df1cf9c-6f7e-4d69-806a-28eb0237158f)
+![image](https://github.com/user-attachments/assets/f401c66d-db0b-49b9-8c97-977d23a269d0)
